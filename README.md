@@ -7,5 +7,5 @@ Made by KSHyst in 2023.
 
 <b>Download Links : </b> 
 
-Ver 1.0 : https://mega.nz/file/qM4VxKAB#gDJSQaueWnbTmw-vBe5gZfdmlLIw63CaOQElx7z_gvk
+Ver 1.0 : https://mega.nz/file/qM4VxKAB#gDJSQaueWnbTmw-vBe5gZfdmlLIw63CaOQElx7z_gvk<br>
 Ver 1.1 : https://mega.nz/file/zJ4XmAKL#TE3zmn9SSrfC-E_wYKfBmnFkEUh3L4Zc-yR6E9yw4o8
